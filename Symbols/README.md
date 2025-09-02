@@ -19,5 +19,6 @@ This symbolic system is under active development and may evolve over time.
 
 ## Contact:
 📧 meisam.ameri.sa@gmail.com  
-📸 Instagram: @masam.ameri 
+📸 Instagram: @masam.amera
+☎️+989122155503
 #MASAM #SymbolicMeaning #KingdomOfMeaning
