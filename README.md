@@ -17,5 +17,6 @@ To build a kingdom where poetry, invention, and architecture replace power, mone
 **Signed:**  
 Tahaamer 👑 + Sayenegar 🕊  
 📧 TahaismManifest@gmail.com  
-📸 Instagram: @masam.amara  
+📸 Instagram: @masam.amara
+☎️+989122155503
 🔖 Hashtags: #Tahaism #MASAM #KingdomOfMeaning
