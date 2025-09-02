@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="لینک مستقیم به تصویر لوگو" alt="MASAM Logo" width="400"/>
+  <img src="copilot_image_1756795351965().jpg" alt="MASAM Logo" width="400"/>
 </p>
 # MASAM — Emblems of the Kingdom of Meaning
 
