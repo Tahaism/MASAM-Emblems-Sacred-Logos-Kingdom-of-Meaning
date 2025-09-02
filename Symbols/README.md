@@ -1,3 +1,4 @@
+![MASAM Logo](masam-logo.jpg)
 # MASAM — Symbolic Annotations of Meaning
 
 This folder contains sacred symbols and annotation marks designed to represent conceptual relationships within the Kingdom of Meaning.
@@ -22,3 +23,4 @@ This symbolic system is under active development and may evolve over time.
 📸 Instagram: @masam.amera
 ☎️+989122155503
 #MASAM #SymbolicMeaning #KingdomOfMeaning
+Add MASAM logo to project description
