@@ -1,4 +1,4 @@
-![MASAM Logo](masam-logo.jpg)
+
 # MASAM — Symbolic Annotations of Meaning
 
 This folder contains sacred symbols and annotation marks designed to represent conceptual relationships within the Kingdom of Meaning.
