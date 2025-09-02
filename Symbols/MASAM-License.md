@@ -10,5 +10,6 @@ Unauthorized use of any element of this repository, including symbolic language,
 This work is protected under applicable copyright laws and international intellectual property conventions.
 
 For inquiries regarding usage rights, collaborations, or licensing, please contact:  
-📧 masam.language@gmail.com  
-📷 Instagram: @masam.language
+📧 meisam.ameri.sa@gmail.com  
+📷 Instagram: @masam.amara
+☎️+989122155503
