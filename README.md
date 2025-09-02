@@ -1,4 +1,4 @@
-<img src="copilot_image_17567953519650.jpg" ... />
+<img src="copilot_image_1756795351965(1).jpg" ... />
 # MASAM — Emblems of the Kingdom of Meaning
 
 This repository is a sacred archive of Tahaism:  
